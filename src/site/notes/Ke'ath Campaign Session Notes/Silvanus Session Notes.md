@@ -1,0 +1,550 @@
+---
+{"dg-publish":true,"permalink":"/Ke'ath Campaign Session Notes/Silvanus Session Notes/"}
+---
+
+#silvanus/notes
+## Morrigan Right Before
+![Morrigan Dying Monologue.png|500](/img/user/Morrigan%20Dying%20Monologue.png)
+
+## In the Astral Plane
+![Thanatos Cutscene Monologue.png|700](/img/user/Thanatos%20Cutscene%20Monologue.png)
+- Thanatos in room destroyed by magic (vision to player)
+	- Young w/gray hair, black eyes, cool cloak, scythe similar to headless man
+	- (who?) missing 2 limbs, charred, "foolish practice to do magic during a double eclipse"
+	- Has a leather book with names of death, severs soul and body
+	- Sees "Sephai" and "Morrigan" in the book, "the souls pain to track down" (will be?)
+	- Eagle distracts him, misses Sephai entering the portal
+	- Follows Morrigan, but loses track of Morrigan
+	- Gambles and goes to the astral plane
+- Sephai's soul floats, Thanatos crosses his name out
+- The line beneath Sephai has no name
+- He also causes the death of cup-summoning god Chashka (since his only believer Morrigan has died)
+
+- In the same moment as the vision ends, Morrigan floats with no LoS to Thanatos, neither saw the Headless Man
+- See white plane
+- Thanatos performed banishing rite on cup-summoning God
+	- Chashka yeets away from Thanatos
+	- Create semi-circle around Chashka, who's frantically summoning cups and yeeting them
+
+- The "Astral Sea" has denser atmosphere
+- See river, Astral Current, it's chill
+- See ship next to vertical plane, sails in odd directions, try to catch currents, 20 smol sails, not normal shape
+- Hear low warrior screams coming from above ship
+	- Man w/green skin, spiky hair, exotic armor, greatsword (bright, silver, ornate) falling towards me
+	- **INSERT DIAGRAM HERE ABOUT THE PLANE?**
+- I ethereal step
+- Surrounded by dudes, 10-15 feet then someone else taller, ornate armor
+- [[Silvanus Encyclopedia/Ke'ath Monsters of the World Silvanus#Githyanki\|Githyanki]], 2 warriors 1 knight
+	- Race of humanoids who travel via Astral sea, centuries ago, enslaved by mind flayers 
+	- Knight: silver greatsword + shield
+	- B: 1 bald warrior + eye patch
+	- A: 1 warrior
+- Make them viscious (??) (viscous? Vicious?)
+- Flying up (I can fly??? Astral plane lack of gravity?)
+- Continue flying up
+##### Combat w/ Githyanki
+- Knight misty steps to me, fails to grapple me
+- The lame warrior (A?) teleports to knight, jumps away from me accidentally, crashes into debris 
+- Pirate warrior (who?), points finger, condensed astral current, push me
+	- grab rusty pipe, crash into debris earth, fail to change direction, jump off earth
+- Knight misty steps 15 ft. below me
+- Lame warrior jumps off debris towards him right next to me, misses, twice (oof)
+- Pirate (which one is the pirate wtf) misty steps up towards me, 30 ft. below me
+- I flame rite but miss, change direction successfully
+- He (he??) greatswords me, hot knight, -28 (That's a lotta dmg) (where'd the hot knight come from, not complaining tho)
+- Lame knight fails to change direction, go opposite direction, I miss opportunity atk
+- Bald warrior misty steps but disorientated, drops sword which goes up, failed to grapple
+- I grab +3 Greatsword :O
+- Hot knight (when did he become a hot knight wtf) changes direction, casts telekinesis, lots of mental energy, move me 30 ft. from plane, next to him
+- Boring knight changes direction to go towards me, hits me
+- Pirate knight goes through plane \*pop* sound
+- I double attack knight
+- Knight fails to change direction, going towards plane now, hits me
+- Boring knight fails to change direction, goes up 
+- I go through plane
+## Through the Plane
+- Surreal experience, go from plane of controlled gravity, hit sea water, dive into water, seasick
+- Pirate warrior 30 ft. from me drowning, lots of wreckage
+- Swim to debris, two Githyanki drown
+- I long rest, makeshift paddle w/sword/plank, get larger plank, nonedible food barrels, drift
+- Bronze metal dragon in sky, looks curious, young happy dragon, climb on back, exchange names, [[Silvanus Encyclopedia/Ke'ath People Silvanus/Xoisa Silvanus\|Xoisa]] (XOISA YAAASSS)
+- "Go near [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Katal\|Katal]], then somewhere"
+- We make loopty loops above the water
+- Direct Xoisa towards [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Silva\|Silva]] and, around midnight
+	- Village not rebuilt, charred remains, no bodies, no gelatinous cube, no bones, not recent
+	- 3 distinct footprints, walked everywhere, stuff was dragged
+- Xoisa lives in volcano (volcano is the island), reach it, no lava at top, smoke from large opening, mound of dead sheep, eat, slep
+- I give myself a very snazzy haircut with the greatsword and make a bone dagger
+- Give greatsword to Xoisa
+- Go to a village, they tell me
+	- 2 days ago, eclipse, during [[Silvanus Encyclopedia/Miscellaneous Silvanus#Harvest Festival\|Harvest Festival]]
+	- Village gives me clothes, they don't like dragons
+- Xoisa takes me to Katal, it has been 3 days since eclipse, it's around 3pm
+- We agree in 3 days, at midnight, at Silver Forest, to meet up
+
+## Katal
+- I approach Katal
+- Katal, outer walls, guards only, no ppl/farmers
+- I climb tree, get on wall, jumped off
+- 10 guards on other side of wall
+- I sneak into a shed, get guards clothes, quarterstaff, ethereal step out
+- Unusual amount of guards patrolling throughout 
+- Within 100ft. of walls, even more guarded
+- Fields of farmland w/wheat
+- 2 guards in field
+- I pretend drunk, go to outhouse
+- Sewers, solid bricks, covered in glaze
+- Not up to waist (what is?), encounter giant rat, run off
+- Exit sewers, slums, no normal civilians, guards everywhere, even midday, I'm in alley, guards pacing
+- I climb onto roof, guards on roof, eerily quiet
+- The city is in lockdown
+- City watch, royal army pacing as well
+- Jump back into sewer, 2 guards see (one elf, one human)
+##### Sewer Chase
+- we strike a deal after chase (okay??) I fake amnesia
+- Napped, taken to [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#City Guard Building\|City watch building]]
+- Head of city watch
+- The forest I was in doesn't exist (? which forest, silver forest? Didn't I just agree to meet in this forest with Xoisa?)
+- Commander draws sword when hear "Silver Forest"
+- Now going to [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#The Institute\|The Institute]] w/Commander Borff
+- Desolate except guards everywhere
+- "Silver forest" is static, in this order, together
+- "Silver ingot forest" is not
+- individual words as well
+- Trying to trick someone into saying "silver forest" makes them zone out for a bit and then they forget what happened
+##### The Institute
+- Brutalist building
+- Big lobby, undecorated, except big emblem, torch w/green flame, shiny
+- Deserted lobby except running dude, taken to Computations Dept. Floor 13
+- The elevator is a tube, like vacuum sealed and shoots upward
+- Floor 13
+- Seems empty, hundreds of boxes, diff. materials/sizes (light, black, wood, oozing)
+- [[Silvanus Encyclopedia/Ke'ath People Silvanus/Andrea Silvanus\|Andrea]]: tall women wizard, looks no more than 35 w/gray hair
+- Bland office, pictures of kids (1 boy 1 girl) (think about the kids!)
+	- Produces the boxes that float
+- Makes white star on ground 
+	- If you lie, andrea will know
+- Andrea understands [[Silvanus Encyclopedia/Miscellaneous Silvanus#Static\|Static]]
+	- Silva is in the silver forest (wait what about xoisa)
+- Computation Dept.
+	- Not doing what we're supposed to do
+	- Ppl in charge not think we do important stuff
+	- Devote dept. to discovering w/missing towns like Silva
+	- forgotten by everyone, no one remembers, so static
+	- Small portion can understand
+	- Job has high turnover rate, occupational hazard
+	- Memloc: Memory location unit (not sure what this is used for again)
+- Andrea asks me about Silva
+- Other (person?) visit: [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Timberfall\|Timberfall]]
+	- Entire dept. vanished day of eclipse
+	- Missions investigating missing towns/villages
+	- Except hours ago, [[Silvanus Encyclopedia/Ke'ath People Silvanus/картошка\|картошка]] reappeared on radar, went to Briesville
+- On roof, 3 sets of paragliders, being built is an hot air balloon 
+- Get into [[Silvanus Encyclopedia/Ke'ath People Silvanus/Alta Wynather Silvanus\|Alta]] Wynather's [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Wynather’s Magical Emporium\|shop]]
+- Bought stuff
+	- Stones of Farspeech (2?)
+		- Up to 10 of these can be magically linked, allowing their bearers to speak to each other from up to 5 miles away
+	- Blastin' Nail Polish
+		- Painting your nails with this magic-infused nail polish will allow you to cast scorching ray at will, once per day, with a finger gun motion
+	- 2 Planar Pockets
+		- Thanks! It has pockets :D
+	- 1 Planar Plant
+		- Get your very own plant from another plane! Your choice of plane and plant. We highly encourage giving the plant a cute name
+		- The name is "Houseplant"
+	- 1 Dionysus's Touch
+		- Once a day, instantly make someone incredibly drunk just by touching them! Please don't use this for anything weird.
+	- 2 Companion Compass
+		- Two of these compasses can be magically linked, causing each to point to the other
+	- 1 Arming Armband w/Design
+		- A discrete armband which looks perfectly ordinary at first glance. However, once per day it can be used to summon a simple weapon of any sort. Can be embroidered with a custom design for an extra 5 GP
+	- 1 Requiem
+		- 1d8 + dex Finesse, versatile (1d10), slashing
+		- when split: 1d6 + dex finesse, light, thrown (15/55), slashing
+- Gonna try to get out of city
+- Borrow Whisper of Hermes to distract guards
+	- Control where your voice goes! Choose who can hear you and where.
+- Get to silver forest, see Xoisa hiding-ish like a dog
+- Talk, prank Andrea
+- Andrea gets mini box (like the boxes at the Institute), chirping tiny mech. bird, radar thing
+	- Gives to me
+	- She needs to do other research
+	- Radars don't usually stop working en mass
+	- Doesn't work across planes, takes magical interference
+
+## [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Briesville\|Briesville]]
+- Fly on Xoisa, see in distance a city (smaller than Katal)
+	- Tall towers, in Ke'ath
+	- Dead city, no lights/smoke/ppl
+	- No plants on buildings
+	- Something happened recently
+	- Near center: see massive plot of land, see erratic looking spikes, blackened material, industrial, not reflective, looks gross, triangulary massive, looks buried, no foundation
+	- Bird starts glitching out
+- Get off Xoisa, run to city, approach, looks should be bustling, but only recently, 5/4/3 weeks old tracks on old (5/4/3 lmfao)
+- Bird pointing at center
+- History nat 20 (I record nat 20s?? Lmao)
+	- Sense necrotic magic
+	- Heard ground rumble (buzz) then settles
+	- No body dragging
+- Smth jumps on me, big spider ,bright [[Silvanus Encyclopedia/Ke'ath Monsters of the World Silvanus#Purple Carapace Spiders\|purple carapace spiders]]
+- There are several of these, one massive, one smol, 2 about the same
+##### Combat
+- Where it stabbed me, webbing from wound
+	- I throw it off
+	- Pawn: shoots webbing at me, misses
+	- Rook: move, shoots spectral web at me (Wis check to walk against them), goes through me towards pawn
+	- Queen: run towards me, bite me
+	- Knight: shoots normal web at me, misses, hits queen
+	- Try move perpendicular to thread, feel self getting pulled back, haven't snapped it tho
+	- I attack pawn, pull rook over, who gets up slowly, ties me to a tree w/spectral web
+	- Knight/queen: run around me, entangling me, knight hits
+	- I kill pawn, thread (rook → me → pawn) shatters, deals dmg. to me and rook
+	- I hit queen, her blood numbs my arm, other blade crits, spider scream
+	- Go around tree, snap thread
+	- Rook: shoots webs, misses lol
+	- Queen/knight: Try to encircle me, I jump on thread to tree, snap thread, damage both spiders, who fall
+	- I jump on knight, blood fully numbs right arm, reconnect blade, kill queen
+	- Rook: jump onto tree, falls to ground, thread rook → knight
+	- Knight: run circles around me, snaps thread
+	- I attack knight, crit, it explodes, web liquid impedes rook movement, gooped
+	- I attack rook
+	- Rook: attempts, hits tree
+	- I attack rook
+	- Rook: attacks tree again (nat 1 lmao)
+	- Spin his head off w/spinny blade
+##### Explore
+- Walk towards city center, feel vibration in ground
+- Biggest building: Ke'ath mining Co., close to city center (not spikes, which were close)
+	- Enter: fancy shmancy building, rich company, sense more powerful necrotic magic and benign magic (harnessed as power)
+	- Lights are on, no life
+	- Reception desk: lots of drawers all empty, no dust no nothing, empty desk
+	- Stone monolith, might've had map, nothing now
+- Floor 2: office building, nothing except shoe (seems normal)
+- Floor 3: office
+- Floor executive: beautiful windows over city
+	- Super tinted window facing spikes (ppl tinted), likely just blocking light
+	- 1 document in drawer, mind can't comprehend there's a doc
+	- Can only comprehend word "Mine" (like mining)
+	- Other drawers empty
+	- Mine entrance by spikes
+- Basement: 
+	- Some sort of boiler (it hums, not the ground, power supply for building)
+	- Can't tell what's diff. tech, magical, was benign magic
+- Nearer (to mine?): bird glitching more than normal, benign / necrotic magic mixing
+- Bird pointing at mine
+- Short rest
+- Go to mine
+
+## The Mine (April 2 2022)
+- far away, spiders
+- See a blank sign (like minecraft blank sign)
+- Entrance: tunnel go down stairs, narrow, covered by durable spiderweb, which disintegrates into teeny spiders
+- Hear birb freaking out, squawking
+- Rickety elevator
+- Elevator falls, hang from requiem in cliff wall, 60 ft. to ground
+- After a couple seconds, elevator hit bottom, hear skittering on ground, abnormally loud
+- Fight, hit (What)
+- Layered hisses
+- Spider misses, falls on ledge, starts climbing up again
+- I kick it, it falls back to ledge
+- I get to ledge, attack, cut off leg, turns into mini spiders
+- Crawls into mouth (ew), wipe em off, splatter
+- Nail polish scorching ray at big spider (combusts into flames, keeps splitting) and teeny spiders
+- Bottom: spider web both there and not there 
+- 2 passages, first: bird goes to sleep, second: birds angry squawk (person, bad, person no like)
+- go down 2nd, bird angy
+- see spiders approaching everywhere, dividing into 2 until can’t differentiate
+- I use requiem like a propeller, propel them away, turn and run away
+- see tunnel going down, steep, reach start of minecart track, 30 ft. down is minecart
+- get into minecart, perfectly clean, no cobwebs, no dust, no engraving, minecraft minecart
+- have to duck, can’t see, use a torch to determine when I can un-duck, it slopes downwards
+- never stop ducking, eventually stops, bird sounds like it’s dying
+- see a man lying on the floor, stuff lying around him
+- he’s a dragonborn, copper (acid breather), flowing black robe, metal bracer
+- chess set beside him, scattered pieces
+- beside it are ashes, no weapons, a wand
+- alive
+- bird collapsed, loose gears, crystals, etc.
+- set chess pieces back to starting position, he gasps awake, who r u, etc.
+- It's [[Silvanus Encyclopedia/Ke'ath People Silvanus/картошка\|картошка]]
+- "Briesville"
+- this is [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Briesville\|Briesville]], he walked into the mine, magical shit happening
+- "watch out" behind me
+##### Boulder Fight Scene
+- the wall is disintegrating into spiders, hear deafening buzzing from below, floor collapses beneath me
+- Kartoshka: arm vibrating, glowing w/darkness, summons a tome, he levitates self
+- I use ethereal step to avoid fall dmg.
+- in massive cavern, thousands of corpses, not decomposing normally, been chomped on like caterpillars chomp leaves
+- giant swarm of smth 60 ft. from us, buzzing, at center of cavern, we’re at the edge
+ glowing above swarm, small hole, light coming in from surface
+- glow beneath swarm, swarm of cicadas, transforms into giant mouth, buzzing, speak, “who am I”, mouth collapses, again, “citizen of Briesville”, transform into man with top hat and suitcase, collapse cuz spiders begin running thru them w/purple pulsing threads, many spiders
+- spiders approach
+- catch a glimpse, glowing purple house-sized boulder (part above ground) underneath swarm
+- K. casts Mage Armor on me, I do Rite of Flame
+- waves of spiders, attacking cicadas, who r fighting back
+- Spiders crawling from corpses, eggs in corpses
+- Kartoshka: mold earth, wall behind me, didn’t answer cicada’s “who am I” turn into flaming tiger
+- I sweeping attack, spinning, burn things with tinder box
+- cicadas: tiger, swipe, burn
+- spiders r close
+- Kartoshka casts wall of fire thing forwards
+- spiders around feet crawl up into you, big spider land on my head, I whack it off and bind it, advance forward 18 ft., now 40 ft. from boulder
+- swarm: I say “chimera”, transforms, breathes fire, hit pocket of gas, explode, hit chimera, we dodge, the corpses still have blood
+- K: levitates over flame, pushes w/my quarterstaff
+- Spiders: lacerate threads vs. swarm, loses form, just cicadas, hit me ouch
+- Me: vault over fire, switch back to blades, burn spiders, some spiders I didn’t target collapse
+- Cicadas: “chimera” form not as distinguished, blob for head
+	- ”protect power, I must”, lay on the boulder
+	- slashes at air, as rearing head to breath fire, spiders weave thread around neck, throws aim off, hits Kartoshka
+- Kartoshka: drop levitation spell, fall dmg., keep running
+- Spiders: miss me, hit Kartoshka, hit cicadas, form unaffected
+- me: ready action toss rope when he levitates, boulder covered by swarm, I’m at the edge, cicadas glow weird color
+- cicadas: form ramp, I climb on, small section fly toward Kartoshka, struggle to carry him back to me on chimera shaped cicadas
+- we tie rope to each other
+- Kartoshka, we need 30ft. Up, cicadas, “yes”, separate chunk of cicadas float up slowly
+	- cicadas: “help” “get backup” 
+- K: “grab on” we tp out to the edge of the cave entrance
+- I only just now notice I have a massive migraine, I cough up blood
+- Kartoshka has similar symptoms, albeit without the blood coughing
+- K: “cicadas should die” “they’re dangerous”
+- the hole is surrounded by 10ft. High square pitch black fence/wall thing, there’s nothing in the hole, outside is city as normal
+- the fence is wood painted w/special paint
+- few/no plants
+- climb over fence, there’s a water tower, a residential area with ~75 miners’ houses
+- Keath Mining Co. is harnessing magic, ie. the boulder
+- we short rest
+- hear rumbling and buzzing until it starts dying out, buzzes feeble
+- get Xoisa to breath lightning thru H2O
+- use stone of farspeech, static-y, compass also static-y
+- eldritch blast to get Xoisa’s attention, break H2O tower, K. water shapes, blue energy from tome, H2O goes down hole, lightning goes down hole, turning into soy sauce, is explosion, cave caves in, ground collapses
+- within 5 seconds, a 2nd explosion, louder, blinded by flash of light, the magical presence I felt when first entering the city x100
+- light hits us, feel migraine, black out
+	- I have a vision, of being extracted, cooled down, buried, extracted by unfamiliar faces, buried, extracted buried cycle
+- blacked out for 5 seconds, Kartoshka is holding up a radiant barrier
+- Xoisa stumbling in air, glide off not very far
+- city is leveled, buildings incinerated, steel beams, destructive looking
+	- the black spikes go deeper than anticipated, go to bottom of cave
+	- at the very very bottom is 30 sq. ft. plaque, lying face up, made of solid black stone
+##### Post-Explosion
+- Xoisa lands, blacks out, 6pm ish
+- we’re right outside the city
+- talking with K.
+	- he asks me what’s your story? How can you hear static, etc.?
+	- I say I have amnesia
+	- he is shooketh, his main theory is that people who hear static usually do so because they forget
+	- can’t go back to Briesville clearly, he coughs up blood
+	- his arms, right arm specifically, is missing scales, he’s beaten up
+	- he slumps over, slep
+- after I long rest, I sneak towards the city, feel the magical presence, very powerful and unpleasant, head towards the center, see spider corpses partially disintegrated, pulsing violent purple, chuck rock at it, spider corpse bursts and purple energy dissipates
+	- the city is leveled, no road, no life at all, permanently feel short of breath
+	- weird side effects, like my left toe hurts
+- reach hole, now an open pit, look down, see no corpses, all vaporized, a single cicada implanted in wall, dead
+- in pit, see spikes, erratic, going everywhere, look terrifying, see plaque
+	- runic script, black, starry points
+![Mysterious Script from Mining Town.png|700](/img/user/Mysterious%20Script%20from%20Mining%20Town.png)
+- it says, after I decoded it:
+`This place is a message... And part of a system of messages... Pay attention to it! Sending this message was important to us. We considered ourselves to be a powerful culture. This place is not a place of honor... No highly esteemed deed is commemorated here... Nothing valued is here. What is here was dangerous and repulsive to us. This message is a warning about danger. The danger is in a particular location... It increases towards a center... The center of danger is here... Of a particular size and shape, and below us. The danger is still present, in your time, as it was in ours. The danger is to the body, and it can kill. The form of the danger is an emanation of energy. The danger is unleashed only if you substantially disturb this place physically. This place is best shunned and left uninhabited. `
+- I leave after taking dmg, when I return, K. and X. are still sound asleep, my nail polish is glowing very brightly and my rations are spoiled
+- K. Wakes up at 8am, wants to leave, Xoisa is dead asleep
+- tried to tickle him, failed
+- K. Uses mold earth, `/\/\/\` like a massage to wake him up
+- X. Finally rolls up, awake, “didn’t dream for the first time in 100 years”, who typically dreams of electric sheep
+- now fly away, K. asks about plaque, I tell him I went to see it, he’s like, r u stupid, I shrug, I show him, he doesn’t know the language
+	- but now, K. says, we know exactly what a city did before vanishing
+	- it was also exporting more energy than Briesville needs
+	- A. Find info on [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Ke'ath Mining Co.\|KMC]] (ke’ath mining company)
+	- B. Lead on other disappeared cities
+- can’t believe such a cute kid killed the king (how/why did convo get here?) (I presume they mean Sephai)
+
+## Back in Katal
+- arrive at Katal at 3pm
+- Xoisa will be back in a week, at midnight, at silver forest
+- Xoisa chucks us after we tie ourselves together, but chucks us bleh, old shoulder pain, we aren’t close enough, within 100ft. Of institute, so we just tp again lmao
+- a guard around 30ft. Away was like, ???
+- go to Computations Department
+- Kartoshka’s boxes, one of them, has a tail, you pull it, there’s an iguana inside it, you feed it paper with large number on it, it displays its prime factors above it floating words wowow
+- Andrea exits her office, “you found him! No waay!”
+	- "don’t doubt my abilities" :/
+- tell Andrea the story, she gets a box and types it down
+	- “Wait wait boulder?”
+- immediately leaps away from me, did u touch it? Me; Ya Her: Shit
+- she suspects it’s [[Silvanus Encyclopedia/Miscellaneous Silvanus#Memorium\|Memorium]], most dangerous element she knows of
+	- “Chem dept. Now” “with Kartoshka”
+- Chem dept. is on floor 5
+
+## April 24 2022
+- In elevator, alone, [[Silvanus Encyclopedia/Ke'ath People Silvanus/Andrea Silvanus\|Andrea]] make [[Silvanus Encyclopedia/Ke'ath People Silvanus/картошка\|картошка]] not go in with me
+- Enter dept., disinfection room, scanned by scanner (a box from Compt. Dept.), alarms go off
+- Tube from ceiling, I am vacuumed out, pitch black, eventually wooshed to hospital bed
+- I wait a bit, Andrea enters without K., begins frantically looking at dials, levers, and shit
+	- No one else because of lockdown
+- Andrea is unfamiliar with levers and shit
+- Moves hose to tube, purple gas goes through tube, feels weird, breath in, feel my blood/veins, hear heartbeat
+- Hear fwoomp, bed beside me is K. now
+	- Purple gas to analyze blood
+	- Punch boxes, 30 seconds, spit out numbers
+	- She doesn't understand it, she finds a box
+	- K. is excited for boxes and panicking
+- New box spits out "blood irradiated", then prints out
+	- Danger to self: moderate
+	- Danger to others: minimal
+- Andrea relaxes a bit, starts thinking and analyze K.
+- I feel woozy, and faint/sleep
+##### Dream/Vision
+- Standing in swamp, relieved, travelling for full day/night, not of own accord
+- Avoiding toads, eyes tire, I shut them, repeats
+- More vibrant colors
+- H2O radiating azure
+- Eyes tire, close them, repeat
+- Now distorted, all colors wrong
+	- Pink toads, neon green trees, ground is green/red
+	- Center of swamp, purple radiation from underwater, single tree beside this point
+	- Tattered red banner, no text
+- Close eyes, open again, Colors more saturated
+- Walk towards thing, feel feet, sink, but eye level not, this is a vision
+	- Keep going for 15 min. but no progress
+- I close my eyes and walk forwards, then open eyes, colors more vibrant, made it to the water, coming from underwater cavern, I jump in, try swim downwards, then do it with eyes closed
+	- See glow through eyelids, H2O gets warmer, eventually find pocket of air, not short of breath tho
+- Glow coming from crystal in black obsidian room-sized box
+- 2 monstrous hags swimming by the box
+- Make myself ghostly, float towards box, hags don't see me, I enter, open eyes
+- See crystal, tetrahedron, purple, I touch it, see thru different eye, the swamp from above, there's a red trail of wispy smoke, the path I followed, faint red glow coming from smth (nearby village)?
+- I cut myself on it, notice no blood comes out, the tetrahedron pulses brightly, hags unaware
+- The red smoke trail vanished
+- Appear immediately at little underwater bubble/cave
+- See walls lined with bodies, on racks, corpses, any race, any gender, see lots of sailors and merchants
+- Lots of bodies, placed methodically, seems to be being preserved, see a 3rd hag, kneeling at center of cave, see Houseplants, then disappear (how tf do I see Houseplants?)
+- The hag is receiving instructions, mentally, her mouth is moving, but no sound
+- Go examine bodies, they don't have faces, they're blurry
+- I can move around cave w/eyes open
+	- Anything having personal ID is gone
+- I stab them, they don't bleed, the wound gets blurred/mixed/blended
+- She jolts upward, as if awake, the racks are almost completely full, 3 spots missing
+- I sneak/pretend to be dead body, the smell is amplified
+- Hag leaves, follow her, to cube, I am a boulder chilling
+	- Hag: "Almost done, few left, then it's over, he will set us free"
+- TP into cube, next turn into hammer, fall on crystal, it cracks
+- See 3 hags transform into 1boulder, hear metal clanking as they hit ground, they transform into me wtf??
+- They brandish requiem, turns into dagger, slice at me
+- They're seaweed
+- I turn into propeller, to slice em up
+- Hags turn into propeller, they go towards cube
+- I turn into swordfish, I see a propeller whirring on top of triangle
+- Hags turn into swordfish, they stick nose into crack, swordfish glow, they transform into shark, gnash at me
+- I turn into obsidian square, I squish it (Nat 20 :D)
+- It barks, they transformed into black obsidian square
+- I turn into hammer, they don't shatter when I hit them
+- They hammer the crystal, try to stick the prong bit into crack, they turn into net made of chains, settle on me, constrained
+- I turn into electric eel, shock em, hear the chain scream, I bonk the ceiling
+- Hag is eel, zoom towards me, arc of electricity into crystal, they pulse but don't transform
+- I swim above them, turn into boulder, fall down, smush them, kill em
+- Crystal is not pulsing at all, completely dark, hear distorted speech, only the tone, confused and angy
+- I touch, hear "Where did you go? What happened"
+	- I ask "who are you, who the hell r u"
+- No glow from crystal, head towards direction of initial glow, dreary eyes, until I jolt awake
+##### Back in Institute
+- Andrea above me, in tube, out for 5 hours
+	- The houseplants can speak in sentences now apparently woo
+- Tell Andrea
+- [[Silvanus Encyclopedia/Miscellaneous Silvanus#Memorium\|Memorium]]: it consumes and radiates knowledge, in memories and history
+	- This boulder is very old, centuries, when buried last, civilization wished to warn us failed to account for material consumed memory of it being danger
+- [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Ke'ath Mining Co.\|KMC]] didn't think twice, now nobody remembers it, show her not-blank paper
+- Memorium memories, visions
+- Found 2 more blips on radar
+- I forgot something (what did I forget?)
+- Experimenting w/chemistry
+- Xoisa is in hot spring (how, what?)
+- Blood hunter increase potency @ unknown side effect
+	- Option to increase the potency of a blood hunter effect when using it
+	- When you use it you forget the past minute
+- Get to elevator, meet K., Andrea sent him to get me
+- Get 250 GP from Andrea as wages
+- 2 more signals, 1 of higher priority, sporadic, hard to triangulate, find [[Silvanus Encyclopedia/Ke'ath People Silvanus/Nessa Silvanus\|Nessa]]
+	- A bartender, potion concocter, sent her to explore [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Timberfall\|Timberfall]]
+	- Mermaid, dark skin, deep blue hair
+- Signal sent once an hour, loudly, briefly, almost stationary, get recon bird
+- Andrea lets us borrow balloon, but then
+- Dorff (brother to Borff?) interrupts, flies outta elevator, needs Andrea, who now needs balloon
+	- Dorff: "not the static forest" I yell "Silver Forest" at him
+- Note to self: don't call K. a wizard
+- Tentative plan: steal flying potion from [[Silvanus Encyclopedia/Ke'ath Mainland Silvanus#Alchemist's Guild\|Alchemist's Guild]]
+- Nessa used to be in Alchemist's Guild
+- We tp into guild, right next to table, person there, startled, drop vial
+- I catch, randomly cast Fly on the dude
+- This dude hears static 
+- K shushes me, I crouch in corner w/origami cat
+- Nessa too chaotic for A. Guild
+- Bomb + parachute → umbrella + leaf blower
+- 30 min. intense concentration, produces 5 potions
+	- Flying potion, 1 fire breathing, 1 feather falling
+	- We pretend roof explode, then yeet off
+	- Faerie fire roof, big boom, breath fire down, go up, then fly
+- Hours of flying, numb tongue
+- On horizon: big crater, 10 mi. across, 1 mi. deep, big bite, sharp edges look up
+	- Entirely pitch black silhouette, off center, same shape/size as crater
+- The bird begins quietly chirping, blinding blast from island, bird screeches and falls apart
+	- Every hour it explodes
+- Timberfall is in the air
+- Difficult to figure out where to land
+- Faerie fire fizzles out before it reaches, fire fizzles out too
+- We land, everything's normal again, reg. town
+- Beautiful gate, says "Timberfall" on it
+- Center: large and beautiful tree, hybrid between rose and tree, on tree, clock carved on it, 11am
+- Everything bounces off barrier surrounding the island
+- Square w/crowd of people, city hall
+- Dude stops us, escorts us to jail, then I touch him, make him drunk (The Mammoth Catman??)
+- City hall, drunkenly convince him, he falls down
+- People around guillotine w/popcorn
+- We see a guillotine, go to city hall, 11:03 am, enter city hall
+- Hear yell from guard station, someone w/scroll and squirrel walks out
+- Pulls us toward crowd, Nessa escorted by 2 guards, 11:08 am
+##### Nessa Save Attempt #1
+- Tell K. to disguise as guard, Go gaseous form on Nessa
+- I drag Mammoth Catman thru crowd as distraction, dodge orc grab
+- I blind orc's glasses w/tinkering and ethereal step towards K.
+- K. is hit, loses concentration, Nessa appears, who runs
+- K. poison sprays, hits
+- K. is mobbed by ppl
+- I spin outta ethereal step, boost fire wall but forget entire last minute
+	- Big headache, forget mob, where Nessa is
+	- I believe this is a Memorium side effect 
+- Guard crits on K
+- Nessa: Unknown
+- K: levitates, takes a bit of a hit
+- Crowd: unknown
+- Guard 2: 
+- Me run: after dying + spare the dying on K. 
+- See Nessa 40 ft. in front of me
+- Crowd: mobs me
+- Guard 1: bound
+- I attack w/fire, light em w/fire, keep running
+- Guard chases, 15 ft. behind me, dash, in front of me
+- I am between mob
+- K. is dying
+- Crowd: 
+- I trip guard
+- Mobs me
+- Am bound, surrender, 
+- Cast spare the dying on K after convincing them
+- The guard goes after Nessa
+- 11:20am, drunk dude passed out
+- I get guillotined (my dream come true)
+##### Loop #2
+- I awaken at entrance, it's 11am
+- K. remembers
+
+
+
+Requiem:
+
+-Finesse: STR/DEX
+-Versatile (2 hands: 1d10 slashing)
+-1d8 slashing
+
+Requiem x2 when split: 
+
+-Finesse: STR/DEX
+-Light (2-handed)
+-Thrown (15/55) (-5ft. Of dagger range)
+-1d6 slashing
+
+When I cast Blood curses, my face drains of all blood and becomes white, but my eyes become bloodshot (like Tokyo Ghoul), and, w/my houseplants, I sparkle :D

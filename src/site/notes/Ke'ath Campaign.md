@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/ke-ath-campaign/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/Ke'ath Campaign/","tags":["gardenEntry"]}
 ---
 
 # Ke'ath Campaign
